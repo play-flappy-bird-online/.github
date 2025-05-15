@@ -2,6 +2,8 @@
 
 **Flappy Bird Unblocked** is the *legendary* arcade game that has made a massive comeback – now playable anywhere, anytime! Whether you're at school, at work, or chilling at home, this **hyper-casual**, **unblocked** version of the classic game lets you experience the *crazy fun* of navigating a little bird through endless pipes in a pixelated sky world.
 
+## <a href="https://1kb.link/tWCJi8">👉 Click To Play Flappy Bird Unblocked 👈</a>
+
 #### 🎮 **Game Genre & Theme**
 
 * **Genre:** Arcade, Retro, Runner, Endless
